@@ -4,7 +4,7 @@
     <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjAxPQ4Zy7xOTPLUsXGYl5L_ZYOSQ1uh1LnAsnTOf2KQsQ3R2I0G9aRtPEjA2tpWRY_OUQ6ClBgM5mqrAoWAJol00xdDKQcGbB7pj7deEvuCFlK5m2LjMak0rHlmHYaSLgwjVYyjkdk8lJHLGzJYsnE7wMFvDvWPrQgqSExue13iAp7RhMNC70w/s310/chilli%20logo.jpg"  width="600">
 </div>
 
-# 🙋 2025.3  - Módulo 03:   - Turma 17  - Chili Beans
+# 🙋 2025.3  - Módulo 03:   - Turma 17  - Chilli Beans
 
 ## 🎯 O objetivo:
 
